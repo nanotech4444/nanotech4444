@@ -7,3 +7,6 @@
 🕙 Buy my AI Quadruple Productivity course and free up your time to spend boosting your revenue.
 
 :phone: Schedule a free 15min call with Calendly link to learn how to quadruple your productivity and revenue for your business.
+
+
+#### Codesignal General Coding Assesment GCA Score (Python): 🌟 730 🌟 Dec 10th, 2022.
